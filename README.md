@@ -1,1 +1,1 @@
-# primaria-s.Glinjeni-r-ul-old-ne-ti
+# primaria-s.Glinjeni
